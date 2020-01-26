@@ -14,4 +14,4 @@ I recently read the <a href="https://en.wikipedia.org/wiki/Bone_%28comics%29">Bo
 
 <img class="alignnone size-medium wp-image-4668" src="http://aud.li/wp-content/uploads/2020/01/MG_2006-500x333.jpg" alt="" width="500" height="333" />
 
-<img class="alignnone size-medium wp-image-4669" src="http://aud.li/wp-content/uploads/2020/01/MG_2007-500x301.jpg" alt="" width="500" height="301" />
+&nbsp;
